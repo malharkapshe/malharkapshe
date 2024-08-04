@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Web Development**
 
-- 📫 How to reach me **malhar.kapshe20@vit.edu**
+- 📫 How to reach me **malharkapshe2002@gmail.com**
 
 - 📄 Know about my experiences
   [https://drive.google.com/file/d/10W6kd3ZZzKoZi-pn0BXYyMBVuqR29j2W/view?usp=drive_link)
