@@ -12,7 +12,7 @@
 - 📫 How to reach me **malharkapshe2002@gmail.com**
 
 - 📄 Know about my experiences
-  [https://drive.google.com/file/d/10W6kd3ZZzKoZi-pn0BXYyMBVuqR29j2W/view?usp=drive_link)
+  [https://drive.google.com/file/d/1gpj9wLjbnoOEFTLoC_HdGwzLD6MX7vPt/view?usp=sharing)
 
 ### 🔗 Connect with me
 <!-- https://assets.leetcode.com/static_assets/public/webpack_bundles/images/logo-dark.e99485d9b.svg -->
